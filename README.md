@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BABI871016HQTRRV12
+BABI871016HQTRRV12
